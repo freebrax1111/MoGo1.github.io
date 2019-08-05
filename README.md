@@ -1,1 +1,1 @@
-# MoGo1.github.io
+# tynyone.github.io
